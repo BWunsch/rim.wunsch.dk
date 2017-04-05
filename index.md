@@ -48,3 +48,11 @@
 
     En lille en, mellem dig og mig? 
     Mon lugten stadigvak er på vej?
+
+### Sten
+    Nu sidder jeg på en sten.
+    Og skriver en besked.
+    Bare så du ved.
+    Og jeg er ikke ked.
+    Jeg rimer lidt idag.
+    Mens jeg sidder på min bag.
