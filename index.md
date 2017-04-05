@@ -34,3 +34,17 @@
     Sidder her i haven og synger træls lalej.
     Sidder her i haven, smukt som den er, 
     Nyder solen, vinden, ja alt det gode vejr
+
+### Chromecast
+    Solen er rød, 
+    En solsort er ej. 
+    Jeg tager bussen, er snart på vej. 
+    Ned og hente chromecast.. Tjuhej Tjuhej. 
+    (this line intentionally left non-rhyming) 
+
+### Lugt
+    Jeg prutter, jeg prutter. 
+    Se det er noget der dutter. 
+
+    En lille en, mellem dig og mig? 
+    Mon lugten stadigvak er på vej?
