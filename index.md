@@ -26,3 +26,11 @@
 
     Poop Oh poop, leaving me now. 
     I would love to know the answers, but how?
+
+### Haverim
+    Hello hello.
+    så sidder jeg i haven.
+    Og venter kun på dig.
+    Sidder her i haven og synger træls lalej.
+    Sidder her i haven, smukt som den er, 
+    Nyder solen, vinden, ja alt det gode vejr
