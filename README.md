@@ -1,6 +1,3 @@
-# Rim
-
-
 ### Venterim
     Vente vente.
     Rime om en struds der hedder Bente.
