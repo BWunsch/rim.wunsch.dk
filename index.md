@@ -56,3 +56,10 @@
     Og jeg er ikke ked.
     Jeg rimer lidt idag.
     Mens jeg sidder på min bag.
+
+### Mads
+    Mads, Mads, hvornår kommer du på plads?
+    Jeg sidder Kub nordher og venter,
+    Men ingen bøger jeg henter.
+    Tiden bruger jeg på rim,
+    hvis du ikke kommer, bliver jeg deprim.
