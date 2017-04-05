@@ -16,3 +16,13 @@
     Husk det elfte af de ti bud:
     Vask altid hænderne på vejen ud
 
+### Titel: Poop a Question. 
+
+Am I pooping for me? 
+For the sake ecology? 
+
+Where will it go, 
+will my poop help make tomatoes grow? 
+
+Poop Oh poop, leaving me now. 
+I would love to know they answers, but how?
