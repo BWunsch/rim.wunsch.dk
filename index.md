@@ -18,11 +18,11 @@
 
 ### Titel: Poop a Question. 
 
-Am I pooping for me? 
-For the sake ecology? 
+    Am I pooping for me? 
+    For the sake ecology? 
 
-Where will it go, 
-will my poop help make tomatoes grow? 
+    Where will it go, 
+    will my poop help make tomatoes grow? 
 
-Poop Oh poop, leaving me now. 
-I would love to know they answers, but how?
+    Poop Oh poop, leaving me now. 
+    I would love to know the answers, but how?
