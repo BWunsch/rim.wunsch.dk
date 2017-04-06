@@ -70,3 +70,12 @@
     Poems once a while,
     Refinding them can be a trial,
     Sometimes rhyming is too.
+
+### Work
+    Working my day away,
+    Weirdly not stressfull, I must say.
+
+    I wonder what challenges today will bring,
+    Perhaps I'll focus too long on one thing?
+    
+
