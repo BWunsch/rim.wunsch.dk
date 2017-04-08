@@ -1,3 +1,11 @@
+### Dip
+    Forgive me for I have sinned,
+    I ate all the dip again,
+    all is gone, no more there,
+    nothing left for us to share.
+    I ate it all to fast, i almost feel sick,
+    Even the bowl I did lick.
+
 ### Venterim
     Vente vente.
     Rime om en struds der hedder Bente.
