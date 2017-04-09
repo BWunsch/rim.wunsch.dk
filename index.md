@@ -1,3 +1,16 @@
+### Hurra for Valde!
+
+    Her er en gave,
+    en de mange i livet du skal have,
+    Du får en bog med masser af fortælleri
+    En der står mange spændende ting i.
+
+### Strygerim
+    Min T-shirt er klar. 
+    Den er dejlig varm og rar.
+    strøget den til du har,
+    for du er nemlig også rar.
+
 ### Dip
     Forgive me for I have sinned,
     I ate all the dip again,
