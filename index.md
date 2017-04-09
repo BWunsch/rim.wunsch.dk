@@ -1,14 +1,14 @@
 ### Hurra for Valde!
 
     Her er en gave,
-    en de mange i livet du skal have,
+    En af de mange i livet du skal have,
     Du får en bog med masser af fortælleri
     En der står mange spændende ting i.
 
 ### Strygerim
     Min T-shirt er klar. 
     Den er dejlig varm og rar.
-    strøget den til du har,
+    strøget den til mig du har,
     for du er nemlig også rar.
 
 ### Dip
@@ -80,7 +80,7 @@
 
 ### Mads
     Mads, Mads, hvornår kommer du på plads?
-    Jeg sidder Kub nordher og venter,
+    Jeg sidder på KUB-nord her og venter,
     Men ingen bøger jeg henter.
     Tiden bruger jeg på rim,
     hvis du ikke kommer, bliver jeg deprim.
