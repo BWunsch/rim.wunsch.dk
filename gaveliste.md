@@ -7,19 +7,19 @@ title: Gaveliste
 
 # Plakater: 
 
-## Ribe (hvis den stadig kan købes)
+- Ribe (hvis den stadig kan købes)
 http://ribe.nu/?p=14529
 
-## Ellers så er der denne Ribe plakat
+- Ellers så er der denne Ribe plakat
 https://vissevasse.dk/collections/danmark-plakater-online/products/ribe-plakat-storkene
 
-## Tyskland
+- Tyskland
 https://kortkartellet.dk/collections/deutschland/products/deutschland-koksgra-50x70-cm
 
-## Færøerne
+- Færøerne
 https://kortkartellet.dk/collections/faeroerne/products/foroyar-koksgra-50x70-cm
 
-## Møn
+- Møn
 https://kortkartellet.dk/collections/mon/products/mon-kobber-50x70-cm
 
 
