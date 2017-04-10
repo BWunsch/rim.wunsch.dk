@@ -6,6 +6,11 @@
     Snart går det ud i det fri,
     Solskin og jordbær- det kan vi li'!
 
+### Jordbærløgn
+    Jeg spiser ikke jordbær,
+    måske jeg bare ikke er jordnær,
+    Men når ordet passer perfekt i digt,
+    Så sker der et sandhedsmæssigt svigt.
 
 ### Hurra for Valde!
     Her er en gave,
