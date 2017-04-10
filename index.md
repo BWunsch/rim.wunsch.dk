@@ -1,3 +1,11 @@
+### Mencation
+    A girl I know,  went on vacation, 
+    Far away from this little nation, 
+    Her experiences she posted online, 
+    Pictures of men she posted all the time. 
+    When will she back again? 
+    From this world filled only with men.
+
 ### Påske
     Husk at komme Påsken i hu!,
     For det er nemlig lige nu,
