@@ -1,8 +1,6 @@
 ---
-title: Gaveliste
+title: Ønskeseddel
 ---
-
-# Her er en gaveliste.
 
 
 # Plakater: 
