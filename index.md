@@ -1,5 +1,13 @@
-### Hurra for Valde!
+### Påske
+    Husk at komme Påsken i hu!,
+    For det er nemlig lige nu,
+    Vi får fri for skole og arbejde,
+    en lille ferie ingen kan os bebrejde,
+    Snart går det ud i det fri,
+    Solskin og jordbær- det kan vi li'!
 
+
+### Hurra for Valde!
     Her er en gave,
     En af de mange i livet du skal have,
     Du får en bog med masser af fortælleri
