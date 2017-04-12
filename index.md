@@ -1,3 +1,26 @@
+### Rejsekort
+    Jeg har et lille instrument, 
+    Mange har det,  ja det er faktisk ret kendt. 
+    Det kan lade lyde som ding og dong, 
+    Er du dygtig kan du måske spille "All night long" 
+    Men når sangen er slut, at husk at logge ud. 
+    Ellers står der 25 kroner for skud. 
+
+### Pant
+    Jeg har ikke været nede med min pant, 
+    Så nu har jeg nok til at bygge en elephant. 
+    Nede i netto bytter de flasker til kroner med et smil,
+    Jeg burde gå derned før slutningen af april.  
+
+### Strøget
+    Du må ikke cykle her, 
+    Jeg er ligeglad med hvor forsigt du er. 
+    Kaldte vi det for en cykel-gade, 
+    Havde du ikke fået ballade, 
+    Du må ikke cykle her, 
+    Kan du så lade vær'
+
+
 ### Mencation
     A girl I know,  went on vacation, 
     Far away from this little nation, 
@@ -120,4 +143,3 @@
     I wonder what challenges today will bring,
     Perhaps I'll focus too long on one thing?
     
-
