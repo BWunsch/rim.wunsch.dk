@@ -47,3 +47,6 @@ https://www.coolstuff.dk/Fuji-Instax-Mini-8
 # Potter med planter til altanen
 
 
+
+# Digt
+[Et lille digt til samlingen](http://rim.wunsch.dk)
