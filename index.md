@@ -1,3 +1,9 @@
+### Kage, et digt:
+    Kage, kage - jeg kan ikke klage.
+    Når man den spise vil, skal der ofte skeer til.
+    Kage, kage - min mave det velbehage.
+
+
 ### Rejsekort
     Jeg har et lille instrument, 
     Mange har det,  ja det er faktisk ret kendt. 
