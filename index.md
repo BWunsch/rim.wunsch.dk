@@ -1,3 +1,11 @@
+### Arbejd, Arbejd.
+    Endnu en uge er i gang,
+    Jeg håber ikke den bliver lang,
+    Nye mennesker kommer ind,
+    Og jeg skal sidde på en ny pind.
+    Jeg håber kaffen er god,
+    Kartoffelguiden udvides med et land eller to.
+
 ### Nørrelort
     På Nørreport, 
     har jeg lagt en lort.
