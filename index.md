@@ -1,3 +1,13 @@
+### Nørrelort
+    På Nørreport, 
+    har jeg lagt en lort.
+    Jeg skider uden kvaler,
+    For det er kommunen som betaler.
+    Arkitekturen er så fin,
+    At prisen på døren er til grin.
+    Jeg gik rigtigt til den, 
+    Så her vil jeg skide igen. 
+
 ### DSB Tog, et digt:
     Toget det skal køre mig,
     alle i toget skal samme vej.
