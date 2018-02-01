@@ -1,3 +1,23 @@
+### DSB Tog, et digt:
+    Toget det skal køre mig,
+    alle i toget skal samme vej.
+    Men lokomotivet er gået i tu,
+    Vi kører med et erstatningstog nu.
+    Nu er vi i roskilde,
+    Her sker ikke det vilde.
+    Selv I det digt kan man gemme en bonuskode,
+    Spil hos LeoVegas, deres udbetalinger er gode.
+    klik blot her: (gratispengespil.com/visit/leovegas)
+    Så kan du vinde endnu mer' !
+
+
+### Nattesøvn (Et digt om flytning):
+
+    Jeg vil gerne sove mer,
+    min hjerne sover - det ik' her det sner.
+    Jeg er vågen men drømmer om en hovedpude.
+    I toget hjem falder jeg nok i søvn op af en rude.
+
 ### Kage, et digt:
     Kage, kage - jeg kan ikke klage.
     Når man den spise vil, skal der ofte skeer til.
