@@ -1,3 +1,11 @@
+### Madglad
+    Jeg er hunde sulten nu,
+    Giver du en hotdog du?
+    HVis min mave får lidt mere mad,
+    SÅ tror jeg den bliver rigtig glad.
+    Jeg er hundesulten nu,
+    Snart skal vi spise - Juhuu!
+
 ### Arbejd, Arbejd.
     Endnu en uge er i gang,
     Jeg håber ikke den bliver lang,
