@@ -1,3 +1,17 @@
+### Varmedilemma
+    Nu må du ikke blive ør,
+    men jeg tænker lidt på fjernvarme rør.
+    For hvis køber et pillefyr,
+    så er varmen ikke så dyr.
+    Ude i garagen det måske kan stå,
+    Men mon varmen selve huset kan nå?
+    Det kræver måske lidt isolation,
+    men har jo aldrig skadet nogen.
+    Og hvis man nu får en akkumulatortank,
+    så kan varmeregningen virkelig få bank.
+    varme tanker i disse kolder tider,
+    Jeg gider snart ikke mere dette varmepumpe fnidder.
+
 ### Madglad
     Jeg er hunde sulten nu,
     Giver du en hotdog du?
