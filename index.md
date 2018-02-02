@@ -1,7 +1,7 @@
 ### Varmedilemma
     Nu må du ikke blive ør,
     men jeg tænker lidt på fjernvarme rør.
-    For hvis køber et pillefyr,
+    For hvis jeg køber et pillefyr,
     så er varmen ikke så dyr.
     Ude i garagen det måske kan stå,
     Men mon varmen selve huset kan nå?
